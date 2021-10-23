@@ -1,1 +1,1 @@
-telegram channel: @RealPentesting
+thank you 
